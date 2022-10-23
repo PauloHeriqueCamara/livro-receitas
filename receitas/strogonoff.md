@@ -15,4 +15,3 @@
 - 1 copo de cogumelos
 - 1 copo de creme de leite
 - [batata palha](https://blog.tudogostoso.com.br/cardapios/receitas-faceis/receitas-com-batata-palha/) a gosto
-
